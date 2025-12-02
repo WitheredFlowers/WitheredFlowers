@@ -1,16 +1,18 @@
-## Hi there 👋
 
-<!--
-**WitheredFlowers/WitheredFlowers** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
-Here are some ideas to get you started:
+<div align='center'> 𝙰𝚋𝚘𝚞𝚝 𝚅𝚒𝚟𝚢 !
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+![](https://files.catbox.moe/gzh1wo.png)
+
+💙 𝚂𝚘𝚛𝚋𝚎𝚝 𝚘𝚛 𝚅𝚒𝚟𝚢 💙
+
+💙 𝙰𝚗𝚢 𝚙𝚛𝚘𝚗𝚘𝚞𝚗𝚜 ,, 𝙶𝚎𝚗𝚍𝚎𝚛𝚏𝚕𝚞𝚒𝚍 💙
+
+💙 𝙲𝚊𝚗 𝚋𝚎 𝚟𝚎𝚛𝚢 𝚌𝚕𝚒𝚗𝚐𝚢 𝚒𝚏 𝚌𝚕𝚘𝚜𝚎 !! 𝙲𝚎𝚛𝚝𝚒𝚏𝚒𝚎𝚍 𝚕𝚒𝚜𝚝𝚎𝚗𝚎𝚛 <𝟹 💙
+ 
+ 
+
+ 
+ 𝙷𝚒𝚒! 𝙵𝚎𝚎𝚕 𝚏𝚛𝚎𝚎 𝚝𝚘 𝚌𝚊𝚕𝚕 𝚖𝚎 𝚂𝚘𝚛𝚋𝚎𝚝 𝚘𝚛 𝚅𝚒𝚟𝚢, 𝚠𝚑𝚒𝚌𝚑𝚎𝚟𝚎𝚛 𝚢𝚘𝚞 𝚏𝚎𝚎𝚕 𝚌𝚘𝚖𝚏 𝚠𝚒𝚝𝚑 ^_^ ! 𝙸 𝚊𝚖 𝚞𝚜𝚞𝚊𝚕𝚕𝚢 𝚊𝚝 𝚝𝚑𝚎 𝚑𝚘𝚢𝚘𝚟𝚎𝚛𝚜𝚎 𝚊𝚛𝚎𝚊 𝚘𝚛 𝚖𝚊𝚛𝚔𝚎t
+
+ 𝙸 𝚛𝚎𝚊𝚕𝚕𝚢 𝚠𝚊𝚗𝚝 𝚗𝚎𝚠 𝚏𝚛𝚒𝚎𝚗𝚍𝚜 𝚜𝚘 𝚙𝚕𝚎𝚊𝚜𝚎𝚎𝚎 𝚋𝚖𝚏! 𝙸 𝚙𝚛𝚘𝚖𝚒𝚜𝚎 𝙸'𝚖 𝚗𝚒𝚌𝚎 ...
